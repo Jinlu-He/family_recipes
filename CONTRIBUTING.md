@@ -1,1 +1,1 @@
-hard work
+hard work and study
